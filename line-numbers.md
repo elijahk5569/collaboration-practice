@@ -1,10 +1,10 @@
-#### 1 Elijah was here 
+#### 1 Elijah was here
 #### 2
 #### 3 sep is good
 #### 4
 #### 5
 #### 6
-#### 7
+#### 7 I like fries
 #### 8
 #### 9
 #### 10
